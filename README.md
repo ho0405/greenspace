@@ -1,4 +1,4 @@
-Green Space Ease: Revolutionizing Access to Greenspaces
+<img width="1151" alt="Screenshot 2023-12-31 at 7 29 21 PM" src="https://github.com/ho0405/greenspace/assets/23023444/faf1c705-fca4-4aae-972f-104ee6776e66">[Wavemakers.pptx](https://github.com/ho0405/greenspace/files/13815924/Wavemakers.pptx)Green Space Ease: Revolutionizing Access to Greenspaces
 
 Embark on a transformative journey with "Green Space Ease," 
 a visionary mobile app conceptualized and presented during an 8-week experiential learning program under the esteemed Wavemakers initiative. 
@@ -28,3 +28,11 @@ The project is currently in the planning phase, with a comprehensive research-ba
 Our team is laying the foundation for a user-friendly and impactful solution that will redefine how individuals access and experience greenspaces.
 
 Stay tuned as "Green Space Ease" progresses from planning to implementation, ushering in a new era of accessibility and well-being through innovative mobile technology.
+<img width="1151" alt="Screenshot 2023-12-31 at 7 29 21 PM" src="https://github.com/ho0405/greenspace/assets/23023444/fb59aa70-0198-4704-abc2-8f048d9dc619">
+
+<img width="1147" alt="Screenshot 2023-12-31 at 7 30 23 PM" src="https://github.com/ho0405/greenspace/assets/23023444/a6971831-3641-4402-8443-ae20362e1a81">
+<img width="1147" alt="Screenshot 2023-12-31 at 7 30 01 PM" src="https://github.com/ho0405/greenspace/assets/23023444/6cada0e9-db03-4a43-9d27-d68593101b94">
+
+<img width="1150" alt="Screenshot 2023-12-31 at 7 29 47 PM" src="https://github.com/ho0405/greenspace/assets/23023444/eb98330d-919a-46ba-bf98-3ed308a962d0">
+
+
